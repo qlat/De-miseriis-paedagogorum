@@ -1,1 +1,1 @@
-# De-miseriis-paedagogorum
+# De miseriis paedagogorum
